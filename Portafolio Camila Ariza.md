@@ -226,7 +226,7 @@ Correocamilaariza407@gmail.com
 
 Teléfono(+57) 321 999 4496
 
-LinkedIn[linkedin.com/in/camilaariza-190260283](https://www.linkedin.com/in/camilaariza-190260283/)
+LinkedIn[https://www.linkedin.com/in/camilaariza-190260283/]
 
 CiudadBogotá, Colombia
 
